@@ -1,1 +1,1 @@
-If you read this that means you reading this, rigth?
+If you read this that means you're reading this, rigth?
